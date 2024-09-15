@@ -8,7 +8,7 @@
 - 🌟 When I'm not coding, you can find me experimenting with design.
 - 🌱 Constantly exploring new technologies!
 - 💡 Data Science Enthusiast.
-- 🌍 Sharing what I Learn
+- 🌍 Sharing what I learn
   
   
 
